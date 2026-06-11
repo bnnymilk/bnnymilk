@@ -4,6 +4,7 @@
 </h3>
 
 <h1 align="center">♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
+![](https://komarev.com/ghpvc/?username=bnnymilk&color&#f01a47)
 <p>
 <img align="right" width="454" height="454" alt="image" src="https://github.com/user-attachments/assets/65a64265-d755-4ea9-8cfd-3ebc5a3c76d6" />
 
