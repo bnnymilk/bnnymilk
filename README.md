@@ -1,11 +1,13 @@
-<img width="1018" height="357" alt="image" src="https://github.com/user-attachments/assets/3e521622-3550-4156-8707-d8db996ba4a1" />
 
-<h1 align="center">𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
+<h4 align="center">
+<img align width="647" height="227" alt="image" src="https://github.com/user-attachments/assets/b1051718-9217-4716-a937-5272cf91af77" />
+</h4>
+
+<h1 align="center">♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 <p>
-<img align="right" width="506" height="369" alt="image" src="https://github.com/user-attachments/assets/c3c68989-d16b-4ef8-8877-3922fc2caabf" />
+<img align="right" width="454" height="454" alt="image" src="https://github.com/user-attachments/assets/65a64265-d755-4ea9-8cfd-3ebc5a3c76d6" />
 
 
-┣▇▇▇═─
 </p>
 <p> i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
 <p> i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
@@ -26,7 +28,8 @@
 
 
 
-<img align="left" width="371" height="371" alt="image" src="https://github.com/user-attachments/assets/79fe2c28-9fdd-47e4-86de-3f27dd462062" />
+<img align="left" width="453" height="453" alt="image" src="https://github.com/user-attachments/assets/72794145-1bee-4a9c-b412-cd7388308484" />
+
 disclaimers .. ♡ <hr />
 <p> i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
@@ -36,5 +39,6 @@ it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡ 
 any type of problematic behavior which includes " age playing " i fnd it very disgusting n nasty.. i do know there is a
 difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> <br / >
 <p>♡ - pronouns page .. ♡ https://en.pronouns.page/@bnniiu</p>
-<img width="1018" height="357" alt="image" src="https://github.com/user-attachments/assets/b50f5fac-6d5d-4389-a337-1136df2c4408" />
-
+<h4 align="center">
+<img align width="647" height="227" alt="image" src="https://github.com/user-attachments/assets/b1051718-9217-4716-a937-5272cf91af77" />
+</h4>
