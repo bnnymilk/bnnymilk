@@ -1,4 +1,4 @@
-<img width="1500" height="130" alt="image" src="https://github.com/user-attachments/assets/984b3324-827a-481d-ad3c-815e115da587" />
+<img width="1018" height="357" alt="image" src="https://github.com/user-attachments/assets/3e521622-3550-4156-8707-d8db996ba4a1" />
 
 <h1 align="center">𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ https://bnniiu.straw.page/ </h1> 
 <p>
@@ -36,5 +36,5 @@ it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡ 
 any type of problematic behavior which includes " age playing " i fnd it very disgusting n nasty.. i do know there is a
 difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> <br / >
 <p>♡ - pronouns page .. ♡ https://en.pronouns.page/@bnniiu</p>
-<img width="1500" height="128" alt="image" src="https://github.com/user-attachments/assets/74625e35-a636-4982-bdf1-adc86726d7e4" />
+<img width="1018" height="357" alt="image" src="https://github.com/user-attachments/assets/b50f5fac-6d5d-4389-a337-1136df2c4408" />
 
