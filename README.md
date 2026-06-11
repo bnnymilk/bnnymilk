@@ -6,7 +6,7 @@
 
 <h3 align="center">
 
-<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=8ec1ac92">
+<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
 </h3>
 
 <h1 align="center">♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
@@ -58,6 +58,6 @@ any type of problematic behavior which includes " age playing " i fnd it very di
 difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> <br / >
 <p>♡ - pronouns page .. ♡ https://en.pronouns.page/@bnniiu</p>
 <h3 align="center">
-<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=8ec1ac92">
+<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
 </h3>
 </h3>
