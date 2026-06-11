@@ -37,7 +37,7 @@
 
 <br />
 <h2>𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 ..♡ </h2>
-<hr />
+
 <p> 𓏴 phasmophobia </p>
 <p> 𓏴 left 4 dead </p>
 <p> 𓏴 overwatch 2</p>
