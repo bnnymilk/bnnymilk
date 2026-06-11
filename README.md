@@ -4,10 +4,10 @@
 
 </h5>
 
-<h3 align="center">
+<h5 align="center">
 
 <img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
-</h3>
+</h5>
 
 <h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
@@ -33,9 +33,8 @@
 <img src="https://64.media.tumblr.com/56e6e3134b8321cc84747fa5feec9440/38c82279665ba429-79/s250x400/3c052a8113bb4b0e615d8cfc88f803b4afdf9a08.gifv">
 <img src="https://64.media.tumblr.com/8df2dd8821aff34343671736cff783b6/377e262b03830725-8d/s100x200/983a18f59d5d73efe1e7533fad020072fdc535e1.gifv">
 </p>
-   <br />
+   <br>
 
-<br />
 <h2>𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 ..♡ </h2>
 
 <p> 𓏴 phasmophobia </p>
@@ -55,9 +54,13 @@ will also ask me "why do you do it?" i find it rllie fun n its nt meant to sound
 it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡  js dnt be rude abt it..  ♡ </p>
 <p>𓏴 another frequent question i get asked is "do you ageplay?/"are you a ageplayer?" short answer, no. I do not support
 any type of problematic behavior which includes " age playing " i fnd it very disgusting n nasty.. i do know there is a
-difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> <br / >
+difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> 
+<br>
 <p>♡ - pronouns page .. ♡ https://en.pronouns.page/@bnniiu</p>
-<h3 align="center">
+<br>
+<h5 align="center">
+   
 <img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
-</h3>
-</h3>
+
+</h5>
+
