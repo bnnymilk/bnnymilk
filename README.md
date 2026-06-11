@@ -12,8 +12,9 @@
 <p> 𓏴 i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
 <p> 𓏴  i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
 <p> 𓏴 i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> 
-<p>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</p> 
-   ︵︵︵︵︵ꫂ᭪︵︵︵︵︵  <br />
+<h3>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</h3>
+   ︵︵︵︵︵ꫂ᭪︵︵︵︵︵  
+   <br />
 
 <br />
 <h2>𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 ..♡ </h2>
