@@ -9,7 +9,7 @@
 <img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
 </h3>
 
-<h1 align="center">♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
+<h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
 <img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=024af5cb">
