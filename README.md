@@ -12,8 +12,7 @@
 <h1 align="center">♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
-<img align="right" width="454" height="454" alt="image" src="https://github.com/user-attachments/assets/65a64265-d755-4ea9-8cfd-3ebc5a3c76d6" />
-
+<img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=024af5cb">
 
 </p>
 <p> 𓏴 i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
@@ -48,9 +47,7 @@
 <p> 𓏴 n many more ehe .. ♡  </p>
 
 
-
-<img align="left" width="453" height="453" alt="image" src="https://github.com/user-attachments/assets/72794145-1bee-4a9c-b412-cd7388308484" />
-
+<img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=024af5cb">
 disclaimers .. ♡ <hr />
 <p> 𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
