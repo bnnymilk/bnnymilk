@@ -12,10 +12,10 @@
 <h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
-<img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=a9b751c9">
+<img align="left" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=a9b751c9">
 
 </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
+<p align="right"> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
 <p> $\color{#d4cfca}{\textsf{ 𓏴 im usually hanging at docks >< }}$ </p> 
 <p> $\color{#d4cfca}{\textsf{ 𓏴 i am vry shy whn it comes to talkin so pls be patient wit me ♡ }}$</p> 
 <h3>$\color{#d4cfca}{\textsf{ 𓏴 ♡ - sign my atabook .. ! ♡  }}$ https://bnniiu.atabook.org/</h3>
