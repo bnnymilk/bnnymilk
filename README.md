@@ -9,7 +9,7 @@
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_fe1bf19b08ef5161653ccef8cb451e8c_c08b1bc7_2048.png">
 </h5>
 
-<h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$ <img src="https://64.media.tumblr.com/080a8389fb1aca71a4b2de511272c09b/aac00667671c9632-f2/s75x75_c1/0a8a2eee5386bb0fb1ae703b60aa470099e18111.gifv"> ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
+<h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$ <img src="https://64.media.tumblr.com/080a8389fb1aca71a4b2de511272c09b/aac00667671c9632-f2/s75x75_c1/0a8a2eee5386bb0fb1ae703b60aa470099e18111.gifv"> <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
 <img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/download33-ezgif.com-resize%20(1).jpg">
