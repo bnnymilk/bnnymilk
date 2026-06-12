@@ -35,7 +35,7 @@
 </p>
    <br>
 
-<h2 align="center" > $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h2>
+<h1 align="center" > $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h1>
 
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
@@ -47,7 +47,7 @@
 <br>
 
 <img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=a9b751c9">
-disclaimers .. ♡ <hr />
+disclaimers .. ♡ 
 <p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
 will also ask me "why do you do it?" i find it rllie fun n its nt meant to sound " stupid " or " childish "
