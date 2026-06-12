@@ -35,16 +35,16 @@
 </p>
    <br>
 
-<h2> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h2>
+<h2 align="center" > $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h2>
 
-<p> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 overwatch 2  }}$</p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 roblox  }}$ </p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 dead by daylight  }}$ </p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 minecraft (java n bedrock)  }}$ </p>
-<p> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
-
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 overwatch 2  }}$</p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 roblox  }}$ </p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 dead by daylight  }}$ </p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 minecraft (java n bedrock)  }}$ </p>
+<p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
+<br>
 
 <img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=a9b751c9">
 disclaimers .. ♡ <hr />
