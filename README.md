@@ -38,7 +38,7 @@
 </p>
    <br>
 
-<h1 align="center"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c878ec3d2b73fb9b7d453b7216919318_a9fa1453_250-ezgif.com-resize.webp"> </h1>
+<h1 align="center"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c878ec3d2b73fb9b7d453b7216919318_a9fa1453_250-ezgif.com-resize%20(1).webp"> </h1>
 
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
