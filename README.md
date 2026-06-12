@@ -15,10 +15,10 @@
 <img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=024af5cb">
 
 </p>
-<p> 𓏴 i rllie luv creepy cute nd eerie cute things .. mostly cute tho .. i also rllie luv da pink nurse aesthetic or da sailor lolita japanese fashion .. ♡ >< </p>
-<p> 𓏴  i dnt have a specific " area " in ponytown TT.. but i do hang out mostly at tha docks <3 </p> 
-<p> 𓏴 i am very shy,, i try not to be tho.. i usually get comfy after a while n talk a lot ehe </p> 
-<h3>♡ - sign my atabook .. ! ♡ https://bnniiu.atabook.org/</h3>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 im usually hanging at docks >< }}$ </p> 
+<p> $\color{#d4cfca}{\textsf{ 𓏴 i am vry shy whn it comes to talkin so pls be patient wit me ♡ }}$</p> 
+<h3>$\color{#d4cfca}{\textsf{ 𓏴 ♡ - sign my atabook .. ! ♡  }}$ https://bnniiu.atabook.org/</h3>
 <hr />
    
    
@@ -35,23 +35,23 @@
 </p>
    <br>
 
-<h2>𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 ..♡ </h2>
+<h2> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h2>
 
-<p> 𓏴 phasmophobia </p>
-<p> 𓏴 left 4 dead </p>
-<p> 𓏴 overwatch 2</p>
-<p> 𓏴 roblox </p>
-<p> 𓏴 dead by daylight</p>
-<p> 𓏴 minecraft (java n bedrock </p>
-<p> 𓏴 n many more ehe .. ♡  </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 overwatch 2  }}$</p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 roblox  }}$ </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 dead by daylight  }}$ </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 minecraft (java n bedrock)  }}$ </p>
+<p> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
 
 
 <img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=024af5cb">
 disclaimers .. ♡ <hr />
-<p> 𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
+<p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
 will also ask me "why do you do it?" i find it rllie fun n its nt meant to sound " stupid " or " childish "
-it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡  js dnt be rude abt it..  ♡ </p>
+it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡  js dnt be rude abt it..  ♡  </p>
 <p>𓏴 another frequent question i get asked is "do you ageplay?/"are you a ageplayer?" short answer, no. I do not support
 any type of problematic behavior which includes " age playing " i fnd it very disgusting n nasty.. i do know there is a
 difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡ </p> 
