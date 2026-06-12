@@ -1,15 +1,15 @@
 <h5 align="center">
    
-![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square)
+![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square) <img src="https://64.media.tumblr.com/c85af2a4e86aed6a2a48c0c0b578fc40/543110503f68f349-8f/s75x75_c1/2b6b44c0386a4940c92b4b318db4d6b339880bee.gifv">
 
 </h5>
 
 <h5 align="center">
 
-<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
+<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_fe1bf19b08ef5161653ccef8cb451e8c_c08b1bc7_2048.png">
 </h5>
 
-<h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
+<h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$ <img src="https://64.media.tumblr.com/080a8389fb1aca71a4b2de511272c09b/aac00667671c9632-f2/s75x75_c1/0a8a2eee5386bb0fb1ae703b60aa470099e18111.gifv"> ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
 <img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/download33-ezgif.com-resize%20(1).jpg">
@@ -19,7 +19,7 @@
 <p> $\color{#d4cfca}{\textsf{ 𓏴 im usually hanging at docks >< }}$ </p> 
 <p> $\color{#d4cfca}{\textsf{ 𓏴 i am vry shy whn it comes to talkin so pls be patient wit me ♡ }}$</p> 
 <h3>$\color{#d4cfca}{\textsf{ 𓏴 ♡ - sign my atabook .. ! ♡  }}$ https://bnniiu.atabook.org/</h3>
-<hr />
+
    
    
    <p align="left">
@@ -32,6 +32,7 @@
 <img src="https://64.media.tumblr.com/c95d55e1dd485b84a7c2fb8f244a8765/38c82279665ba429-06/s250x400/a5eb76579ea9d862bf26aefdd64a8903e776106e.pnj"> 
 <img src="https://64.media.tumblr.com/56e6e3134b8321cc84747fa5feec9440/38c82279665ba429-79/s250x400/3c052a8113bb4b0e615d8cfc88f803b4afdf9a08.gifv">
 <img src="https://64.media.tumblr.com/8df2dd8821aff34343671736cff783b6/377e262b03830725-8d/s100x200/983a18f59d5d73efe1e7533fad020072fdc535e1.gifv">
+<img src="https://64.media.tumblr.com/69f61b7e4fc89f230e72e835c1a88fa9/0ff21daacf0346e3-4d/s250x400/f7784eb57033a47c483f15d595adc3bc9653d7ca.gifv">
 </p>
    <br>
 
@@ -61,7 +62,7 @@ difference between age regression n age playing (age regression is fine) but any
 <br>
 <h5 align="center">
    
-<img src="https://imagesyaya.carrd.co/assets/images/image19.png?v=0a9cbdad">
+<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_ea8eab58c3efff25b321d5295cfe81ca_a5b136b7_2048.jpg">
 
 </h5>
 
