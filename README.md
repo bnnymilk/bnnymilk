@@ -12,7 +12,7 @@
 <h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
-<img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=024af5cb">
+<img align="right" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=a9b751c9">
 
 </p>
 <p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
@@ -46,7 +46,7 @@
 <p> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
 
 
-<img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=024af5cb">
+<img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=a9b751c9">
 disclaimers .. ♡ <hr />
 <p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
