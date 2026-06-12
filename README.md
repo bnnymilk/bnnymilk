@@ -12,7 +12,7 @@
 <h1 align="center"> $\color{#FFD4F8}{\textsf{♡ 𝒜𝑏𝑜𝑢𝑡 𝐿𝑖𝑙𝑖  ( ´ ˘ `⑅ )੭ ♡}}$  ♡ <a href="https://bnniiu.straw.page/">strawpage</a>  </h1> 
 
 <p>
-<img align="left" src="https://imagesyaya.carrd.co/assets/images/image21.jpg?v=a9b751c9">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/download33-ezgif.com-resize%20(1).jpg">
 
 </p>
 <p align="right"> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
