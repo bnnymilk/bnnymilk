@@ -11,7 +11,7 @@
 
 <h1 align="center">
    
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=35&pause=1010&color=F7CDF3&center=true&repeat=false&width=435&height=80&lines=%F0%9D%92%9C%F0%9D%91%8F%F0%9D%91%9C%F0%9D%91%A2%F0%9D%91%A1+%F0%9D%90%BF%F0%9D%91%96%F0%9D%91%99%F0%9D%91%96++(+%C2%B4+%CB%98+%60%E2%91%85+)%E0%A9%AD" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7D5F2&width=435&lines=Twinkle+Twinkle+Little+Star+%E2%AD%90%E2%99%A1" alt="Typing SVG" /></a>
 <br>
 <a href="https://bnniiu.straw.page/">strawpage</a> <img src="https://64.media.tumblr.com/080a8389fb1aca71a4b2de511272c09b/aac00667671c9632-f2/s75x75_c1/0a8a2eee5386bb0fb1ae703b60aa470099e18111.gifv"> 
 
