@@ -1,6 +1,6 @@
 <h5 align="center">
    
-![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square) <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_7d04f73e2a4447d8084a28b938360e9b_ef139b9c_100-ezgif.com-resize.webp">
+![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square)
 
 </h5>
 
