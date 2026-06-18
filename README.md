@@ -13,7 +13,7 @@
    
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7D5F2&width=435&lines=Twinkle+Twinkle+Little+Star+%E2%AD%90%E2%99%A1" alt="Typing SVG" /></a>
 <br>
-<a href="https://bnniiu.straw.page/">strawpage</a> <img src="https://64.media.tumblr.com/080a8389fb1aca71a4b2de511272c09b/aac00667671c9632-f2/s75x75_c1/0a8a2eee5386bb0fb1ae703b60aa470099e18111.gifv"> 
+<a href="https://bnniiu.straw.page/">strawpage</a> <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c5b77836cd29d33ad8c050a5f2c53e8b_db7d3205_75-ezgif.com-resize%20(1).webp">
 
 </h1> 
 
