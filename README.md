@@ -44,6 +44,11 @@
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_d41cebab5d07719beb2590d2dd68992c_977bf932_100.png">
 </p>
    <br>
+   <h5 align="center">
+
+<img src="https://file.garden/aitQC5ob_Vh2F1vN/719969016_1747737306387894_5217425475134841495_n-ezgif.com-resize%20(2).png">
+      
+   </h5>
 
 <h1 align="center"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c878ec3d2b73fb9b7d453b7216919318_a9fa1453_250-ezgif.com-resize%20(2).webp"> </h1>
 
