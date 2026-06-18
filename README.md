@@ -18,7 +18,7 @@
 </h1> 
 
 <p>
-<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/download33-ezgif.com-resize%20(1).jpg">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled659_20260618164322-ezgif.com-resize.png">
 
 </p>
 <p> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
@@ -55,7 +55,7 @@
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
 <br>
 
-<img align="left" src="https://imagesyaya.carrd.co/assets/images/image20.jpg?v=a9b751c9">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled659_20260618164211-ezgif.com-resize.png">
 disclaimers .. ♡ 
 <hr>
 <p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
