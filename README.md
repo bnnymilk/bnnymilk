@@ -9,13 +9,13 @@
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_fe1bf19b08ef5161653ccef8cb451e8c_c08b1bc7_2048.png">
 </h5>
 
+<h5 align="center">
+
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne+Mono&weight=100&size=19&pause=1000&color=F7CDEC&background=FFFEF3&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake)](https://git.io/typing-svg)
+</h5>
+
 <h1 align="center">
-   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne+Mono&weight=100&size=19&pause=1000&color=F7CDEC&background=FFFEF3&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake)](https://git.io/typing-svg)
-</h1>
-<br>
-<h1>
-<a href="https://bnniiu.straw.page/">strawpage</a> <p> $\color{#d4cfca}{\textsf{꒰ ♡ ꒱}}$<a href="https://bnnymilk.atabook.org/">atabook</a>
+<a href="https://bnniiu.straw.page/">strawpage</a> $\color{#d4cfca}{\textsf{ ꒰ ♡ ꒱}}$ <a href="https://bnnymilk.atabook.org/">atabook</a>
 </h1> 
 
 <p>
