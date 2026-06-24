@@ -47,13 +47,13 @@
 <p> $\color{#d4cfca}{\textsf{ disclaimers ♡ }}$</p> 
 
 <hr>
-<p> $\color{#d4cfca}{\textsf{𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
+<p> 𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
 make anyne uncomfy whn im talking wit them. i h8 bein da one to make others uncomfortable. Ppl
 will also ask me "why do you do it?" i find it rllie fun n its nt meant to sound " stupid " or " childish "
-it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡  js dnt be rude abt it..  ♡}}$  </p>
-<p> $\color{#d4cfca}{\textsf{𓏴 another frequent question i get asked is "do you ageplay?/"are you a ageplayer?" short answer, no. I do not support
+it js brings comfort n i usually dnt use it when i meet ppl anyway so ya .. ♡  js dnt be rude abt it..  ♡ </p>
+<p> 𓏴 another frequent question i get asked is "do you ageplay?/"are you a ageplayer?" short answer, no. I do not support
 any type of problematic behavior which includes " age playing " i fnd it very disgusting .. i know there is a
-difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi .. ♡}}$ </p> 
+difference between age regression n age playing (age regression is fine) but any act of age playing is not welcomed wit mi ..  </p> 
 <br>
 
 
