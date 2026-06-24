@@ -13,7 +13,7 @@
    
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne+Mono&weight=100&size=19&pause=1000&color=F7CDEC&background=FFFEF3&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake)](https://git.io/typing-svg)
 <br>
-<a href="https://bnniiu.straw.page/">strawpage</a> 
+<a href="https://bnniiu.straw.page/">strawpage</a>
 </h1> 
 
 <p>
@@ -41,7 +41,7 @@
   <br>
   <br>
   <br>
-<h1 align="left"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c878ec3d2b73fb9b7d453b7216919318_a9fa1453_250-ezgif.com-resize%20(2).webp"> </h1>
+<h1 align="left"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$ </h1>
 
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
