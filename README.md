@@ -12,8 +12,10 @@
 <h1 align="center">
    
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Syne+Mono&weight=100&size=19&pause=1000&color=F7CDEC&background=FFFEF3&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake)](https://git.io/typing-svg)
+</h1>
 <br>
-<a href="https://bnniiu.straw.page/">strawpage</a>
+<h1>
+<a href="https://bnniiu.straw.page/">strawpage</a> <p> $\color{#d4cfca}{\textsf{꒰ ♡ ꒱}}$<a href="https://bnnymilk.atabook.org/">atabook</a>
 </h1> 
 
 <p>
