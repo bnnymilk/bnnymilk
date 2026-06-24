@@ -44,7 +44,10 @@
 <br>
 
 <img align="right" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
-<p> $\color{#d4cfca}{\textsf{ disclaimer ♡ }}$</p> 
+
+<h3 align="center">
+ $\color{#d4cfca}{\textsf{ disclaimer ♡ }}$
+</h3>
 
 <hr>
 <p> 𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
