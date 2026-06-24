@@ -1,6 +1,6 @@
 <h5 align="center">
    
-![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square)
+<img src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled683_20260624121054-ezgif.com-resize%20(1).png"> ![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square) 
 
 </h5>
 
@@ -19,7 +19,7 @@
 </h1> 
 
 <p>
-<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled659_20260618164322-ezgif.com-resize.png">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
 
 </p>
 <p> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
@@ -44,9 +44,9 @@
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_d41cebab5d07719beb2590d2dd68992c_977bf932_100.png">
 </p>
    <br>
+  <br>
    <h5 align="center">
 
-<img src="https://file.garden/aitQC5ob_Vh2F1vN/719969016_1747737306387894_5217425475134841495_n-ezgif.com-resize%20(3).png">
       
    </h5>
 
@@ -61,7 +61,7 @@
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
 <br>
 
-<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled659_20260618164211-ezgif.com-resize.png">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(10).gif">
 disclaimers .. ♡ 
 <hr>
 <p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
