@@ -37,11 +37,9 @@
 <p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Horror: Left 4 Dead, Phasmophobia, Dead by Daylight }}$  </p>
 <p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Cozy/Adventure: Minecraft, Stardew Valley, Animal Crossing  }}$ </p>
 <p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Shooter: COD, Overwatch 2, valorant }}$</p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I do play games like roblox but only like mm2, bladeball, adopt me, or other types of cozy/competitive games. I dont mind trying out new games that you play!  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I rarely play Genshin but I do play honkai star rail! Also another game that is similar is Infinity Nikki! The game is sadly dying out by the minute but its a very fun game that I play now and then  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I love playing visual novels and my favorite will always be doki doki literature club. Ever since doki doki, i've always loved cute aesthetics with a horror theme!  }}$ </p>
-<br>
 
+<img src="https://file.garden/aitQC5ob_Vh2F1vN/719969016_1747737306387894_5217425475134841495_n-ezgif.com-resize%20(1).png">
+<br>
 <img align="right" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
 
 <h3 align="center">
