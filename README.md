@@ -34,13 +34,12 @@
 
 <h4 align="left"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡ :}}$ </h4>
 
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 left 4 dead  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 overwatch 2  }}$</p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 roblox  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 dead by daylight  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 minecraft (java n bedrock)  }}$ </p>
-<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Horror: Left 4 Dead, Phasmophobia, Dead by Daylight }}$  </p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Cozy/Adventure: Minecraft, Stardew Valley, Animal Crossing  }}$ </p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 Shooter: COD, Overwatch 2, valorant }}$</p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I do play games like roblox but only like mm2, bladeball, adopt me, or other types of cozy/competitive games. I dont mind trying out new games that you play!  }}$ </p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I rarely play Genshin but I do play honkai star rail! Also another game that is similar is Infinity Nikki! The game is sadly dying out by the minute but its a very fun game that I play now and then  }}$ </p>
+<p align="left"> $\color{#d4cfca}{\textsf{ 𓏴 I love playing visual novels and my favorite will always be doki doki literature club. Ever since doki doki, i've always loved cute aesthetics with a horror theme!  }}$ </p>
 <br>
 
 <img align="right" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
