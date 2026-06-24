@@ -1,6 +1,6 @@
 <h5 align="center">
    
-<img src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled683_20260624121054-ezgif.com-resize%20(1).png"> ![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square) 
+ ![](https://komarev.com/ghpvc/?username=bnnymilk&color=FFD1F1&label=new+bunnies&style=flat-square) 
 
 </h5>
 
@@ -14,12 +14,12 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7D2F4&background=F3FAFF&width=435&lines=%E2%AD%90+Twinkle+Twinkle+Little+Star+%E2%AD%90%E2%99%A1" alt="Typing SVG" /></a>
 
 <br>
-<a href="https://bnniiu.straw.page/">strawpage</a> <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c5b77836cd29d33ad8c050a5f2c53e8b_db7d3205_75-ezgif.com-resize%20(1).webp">
+<a href="https://bnniiu.straw.page/">strawpage</a> <img src="https://file.garden/aitQC5ob_Vh2F1vN/Untitled683_20260624121054-ezgif.com-resize%20(1).png">
 
 </h1> 
 
 <p>
-<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(10).gif">
 
 </p>
 <p> $\color{#d4cfca}{\textsf{ 𓏴 haii ♡  i am usually off tab so, pls whisper TT.. cs m prob playing games}}$ </p>
@@ -43,13 +43,8 @@
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_97fc5b2fe9f592ea52d2552fa1d4ad5d_b2047e64_250-ezgif.com-resize.png">
 <img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_d41cebab5d07719beb2590d2dd68992c_977bf932_100.png">
 </p>
-   <br>
+
   <br>
-   <h5 align="center">
-
-      
-   </h5>
-
 <h1 align="center"> $\color{#FFD4F8}{\textsf{𝒢𝑎𝑚𝑒𝑠 𝐼 𝑃𝑙𝑎𝑦 .. ♡}}$<img src="https://file.garden/aitQC5ob_Vh2F1vN/tumblr_c878ec3d2b73fb9b7d453b7216919318_a9fa1453_250-ezgif.com-resize%20(2).webp"> </h1>
 
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 phasmophobia  }}$  </p>
@@ -61,7 +56,7 @@
 <p align="center"> $\color{#d4cfca}{\textsf{ 𓏴 n many more ehe ♡ }}$  </p>
 <br>
 
-<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(10).gif">
+<img align="left" src="https://file.garden/aitQC5ob_Vh2F1vN/ezgif.com-resize%20(9).gif">
 disclaimers .. ♡ 
 <hr>
 <p>  𓏴  i do have a lil typing quirk .. so if u dnt feel uncomfy wit it pls let me know .. i dnt wnna
