@@ -11,7 +11,7 @@
 
 <h5 align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=F7DCF5&background=FFFFFD&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&duration=5004&pause=1001&color=F7C3EA&background=FEFFF5&center=true&repeat=false&random=true&width=435&lines=soft+bunny+smelling+like+a+vanilla+cupcake" alt="Typing SVG" /></a>
 </h5>
 
 <h3 align="center">
